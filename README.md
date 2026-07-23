@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AOLJ001114HPLRNSA2
+AOLJ001114HPLRNSA2
